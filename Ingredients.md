@@ -1,0 +1,7 @@
+sugar(1 tbs)
+chocolate powder(2tbs)
+milk(3tbs)
+flour(3 tbs)
+oil(2tbs)
+baking soda(1 pinch)
+chocochips(1 tbs)
